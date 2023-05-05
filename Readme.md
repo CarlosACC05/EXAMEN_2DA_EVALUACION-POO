@@ -2,7 +2,7 @@
 
  
 
-### Integrantes del equipo. 
+### Integrantes del equipo:
 
  
 
